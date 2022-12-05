@@ -39,7 +39,7 @@
 
 ## Meta
 
-Nij Mehar Grover – nijmehar1@gmail.com
+Nij Mehar Grover – nijmehar16@gmail.com
 
 [Nij's Github](https://github.com/K1RA-16)
 
